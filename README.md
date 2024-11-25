@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning everything
 - 🌱 I’m currently learning math
 - 💞️ I’m looking to collaborate 
-- 📫 How to reach me ...
+- 📫 How to reach me everything
 - 😄 Pronouns: she\her
 - ⚡ Fun fact: sorry
 
